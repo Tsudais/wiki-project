@@ -1,4 +1,4 @@
-# Het Verhaal van One Piece
+# Het Verhaal van One Piece - De grote reis
 
 ## De Reis naar de One Piece
 
